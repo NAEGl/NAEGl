@@ -3,7 +3,7 @@
 
 
 <p align="center">
- <img width="99" height="57" alt="tumblr_a51ce9183cb7532c56eb13c22748d94c_3bc3fed5_100" src="https://github.com/user-attachments/assets/77039599-71f4-40d8-82c9-4b60e661a452" /> <a href="https://picojutsu.atabook.org/">atabook</a> ˗ˏˋ ♡ ˎˊ˗
+ <img width="99" height="57" alt="tumblr_a51ce9183cb7532c56eb13c22748d94c_3bc3fed5_100" src="https://github.com/user-attachments/assets/77039599-71f4-40d8-82c9-4b60e661a452" /> <a href="https://picojutsu.atabook.org/">atabook</a> ˗ˏˋ ♡ ˎˊ˗ <a href="https://picojutsu.straw.page">strawpage</a>
 </p> 
 
 <p align="center">
