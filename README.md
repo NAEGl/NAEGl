@@ -8,3 +8,11 @@
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/c6fd0339-f9a6-4494-97b5-f78c1759c107" style="background-color:transparent; border:none; display:inline-block;">
+
+
+<p align="center">
+<img width="200" height="155" alt="image" src="https://github.com/user-attachments/assets/a5d4d397-c088-4789-ab0b-51f6248d0a45" />
+
+
+<p align="center">
+naegami and naezono fans pls interact ily
